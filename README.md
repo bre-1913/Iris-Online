@@ -226,4 +226,4 @@ Iris Online is offered as a free download, providing the complete version with a
 Start your adventure today and download Iris Online for a thrilling gaming experience!
 
 ---
-**Last updated:** 2026-09-30 21:15:15 UTC
+**Last updated:** 2026-10-01 01:06:27 UTC
